@@ -1,4 +1,4 @@
-おはぎー
+おはぎの鳴き声は「おはぎーん」です。おはぎ権は尊重されなければいけません。そのためには、おはぎ畑が豊作になったら全て刈り取り、焼き払う必要があります。つぶあん以外は認めません。
 
 <!--
 **kmycode/kmycode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
