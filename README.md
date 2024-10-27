@@ -6,6 +6,8 @@
 
 ウマ娘があるのにおはぎ娘がないのはおかしいです。改善を要求します。おはぎが歩いています。きなこおはぎとつぶあんおはぎが楽しそうにデートしています。かわいいですね。
 
+**神は「おはぎあれ」と言われた。するとおはぎがあった。**
+
 <!--
 **kmycode/kmycode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
