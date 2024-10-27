@@ -4,6 +4,8 @@
 
 あなたの全てにおはぎみを感じます。おはぎの濫用に気をつけるように。それはもはやおはぎではありません。ぼたもちです。
 
+ウマ娘があるのにおはぎ娘がないのはおかしいです。改善を要求します。おはぎが歩いています。きなこおはぎとつぶあんおはぎが楽しそうにデートしています。かわいいですね。
+
 <!--
 **kmycode/kmycode** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
